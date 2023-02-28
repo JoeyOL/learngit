@@ -1,0 +1,2 @@
+fucking asshole get away 
+！！！！
